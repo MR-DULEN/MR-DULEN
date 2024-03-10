@@ -50,7 +50,8 @@
 <a href="DONT TOCH ALL PICTURES { MOTHER FUCKER 🙄 }"><img src="https://i.ibb.co/ZYTq2KH/spinner2.gif" width="150">
 </div>
 
-
+<div align="center">
+<img src="https://i.ibb.co/LQFcG5g/scratch-studio-760323.gif" width="500000" height="100">
 
 <!---
 MR-DULEN/MR-DULEN is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
